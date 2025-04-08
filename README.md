@@ -5,7 +5,7 @@ I'm a Data Scientist with expertise in machine learning, cloud analytics, and bi
 ☕ Let's chat?
 
 📫 Mail: ngaringima@gmail.com
-💼 LinkedIn: [Charity Ngari](https://www.linkedin.com/in/charity-ngari-b3713010b/)
+💼 LinkedIn: [Charity Ngari](https://www.linkedin.com/in/charity-ngari-0b4b271b1/)
 
 
 ## 🔥 What I Do
